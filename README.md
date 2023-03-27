@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning Javascript
 - 💞️ I’m looking to collaborate on great project
-- 📫 How to reach me hammedadedeji68@gmail.com/ +23441593217(WhatsApp)
+- 📫 How to reach me hammedadedeji68@gmail.com/ +2348141593217(WhatsApp)
 
 <!---
 Toothless64652/Toothless64652 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
